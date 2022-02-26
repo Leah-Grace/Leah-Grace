@@ -12,7 +12,7 @@
 
 💬 Ask me about: [UHIP](https://www.rimonthly.com/unified-health-infrastructure-project/), Government Contracting, Project Management, Leadership, and/or [Surfing](https://surfesa.org/).
 
-
+🤝 Hire me: [@leahgrace.del@gmail.com](mailto:leahgrace.del@gmail.com).
 
 
 
