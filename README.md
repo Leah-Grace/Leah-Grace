@@ -5,7 +5,7 @@
 
 
 	💁‍♀️	Pronouns are she/her
-	📸	[ICA](https://www.icaboston.org/exhibitions/art-age-internet-1989-today)
-	[angelist](https://www.google.com/)
+	📸	[ICA](https://www.icaboston.org/exhibitions/art-age-internet-1989-today).
+	[angelist](https://www.google.com/).
 	[Named Link](http://www.google.fr/ "Named link title") and http://www.google.fr/ or <http://example.com/>
 
