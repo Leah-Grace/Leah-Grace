@@ -10,7 +10,7 @@
 
 👩‍💼 Business Consulting Clients: 📚 [RIDE](https://www.ride.ri.gov/)(2017-2018)  ⚓ [RIEOHHS](https://eohhs.ri.gov/)(2019-2020).
 
-💬 Ask me about: [UHIP](https://www.rimonthly.com/unified-health-infrastructure-project/), Government Contracting, Project Management, Leadership, and/or [Surfing](https://surfesa.org/).
+💬 Ask me about: [UHIP](https://www.rimonthly.com/unified-health-infrastructure-project/), Government Contracting, Project Management, Leadership.
 
 🤝 Hire me: [leahgrace.del@gmail.com](mailto:leahgrace.del@gmail.com).
 
