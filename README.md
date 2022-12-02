@@ -1,4 +1,4 @@
-☕ Programming in Java.
+☕ Programming in Java and C++
 
 💁‍♀️	Pronouns are she/her.
 
